@@ -1,1 +1,0 @@
-# owczarek-niemiecki
